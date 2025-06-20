@@ -1,1 +1,1 @@
-# Kalkulator_sa_Sradnju_-kolu
+# Kalkulator_sa_Sradnju_školu
